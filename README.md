@@ -1,4 +1,5 @@
 # Green Zone -  Means Go - Okay to ask, suggest
+### These questions, comments, statements apply to ALL sisters, brothers, cousins, aunts, uncles, nieces, nephews, best friends, friends, coworkers, doctors, nurses, medical staff, phycologists, social workers, etc. 
 
 Sorry to hear.
 <hr />
@@ -17,7 +18,7 @@ Take ALZ person out for walks, hikes, biking, skiing etc. They still may be phys
 Continue to invite ALZ family over for get togethers, movies etc. During the first year the grieving families energy varies. Please include them if they are up to it. 
 
 # Red Zone - Stop - This is not your place to ask or speak about, or suggest. 
-## Please respect Boundaries for the grieving family there is reasons for boundaries during the grieving process.
+### Please respect Boundaries for the grieving family there is reasons for boundaries during the grieving process.
 
 If license has been taken away from newly diagnosed, DO NOT say they are okay to drive. Please do not question this decision. The family and/or medical professional have chosen.   	
 <hr />
